@@ -1,2 +1,2 @@
 # nik
-learning ssss github
+learning :) github
